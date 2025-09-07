@@ -1,1 +1,0 @@
-# ganzaya-portfolio
